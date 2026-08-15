@@ -1,4 +1,4 @@
-# Shahriare Soikot
+# Shahriare Nafiz
 
 Senior copywriter & author  
 SEO • Conversion copy • Brand voice • UX writing
